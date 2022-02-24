@@ -7,3 +7,5 @@
 1. The duty we feel to others is just the outcome of our accepting their assistance first.
 
 2. In the context of an obligation, we are more inclined to respond "yes."
+
+>The key to using reciprocity effectively and ethically is to give first, and to offer thoughtfully and with personalization.
