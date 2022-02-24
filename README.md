@@ -17,3 +17,7 @@ The most successful persuaders are not those who inquire, "Who can assist me?" I
 ### Personalize to persuade 
 
 The lesson is obvious for anybody in the business of effective and ethical influence and persuasion: **the power of personalization is critical in persuasion**.
+
+### Seek uncommon commonalities
+
+> The path to "yes" is paved with commonalities.
