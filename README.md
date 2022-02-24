@@ -8,4 +8,6 @@
 
 2. In the context of an obligation, we are more inclined to respond "yes."
 
->The key to using reciprocity effectively and ethically is to give first, and to offer thoughtfully and with personalization.
+> The key to using reciprocity effectively and ethically is to give first, and to offer thoughtfully and with personalization.
+
+> Those who initially provide help—in unconditional and personalized ways—emerge as the most persuasive.
