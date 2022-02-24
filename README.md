@@ -13,3 +13,7 @@
 > Those who initially provide help—in unconditional and personalized ways—emerge as the most persuasive.
 
 The most successful persuaders are not those who inquire, "Who can assist me?" Instead, they are the ones who inquire, "Who may I assist first?"
+
+### Personalize to persuade 
+
+The lesson is obvious for anybody in the business of effective and ethical influence and persuasion: **the power of personalization is critical in persuasion**.
