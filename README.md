@@ -50,4 +50,7 @@ When we are faced with situations where we need to influence and persuade others
 
 We change the way information is digested by humanizing our messaging. People are more open to our message when they have a personal connection with us. The path to persuasion is always a human one. So, if we want to be more influential, the advice is to seek for methods to be more human.
 
+### The significance of endings
+
+People's recollections of their experiences might be untrustworthy. This is due to the fact that very few of us can recall every detail of an experience.
 
