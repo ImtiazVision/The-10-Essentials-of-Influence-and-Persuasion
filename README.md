@@ -38,5 +38,7 @@ Making an efficient decision based on the choices, actions, and behaviors of oth
 
 The most effective social proof is that which is relevant to the individual we are attempting to persuade.
 
+> The ideal number of reasons to present in order to persuade someone is three.
+
 
 
