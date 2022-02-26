@@ -48,6 +48,6 @@ When we are faced with situations where we need to influence and persuade others
 
 ### Humanize in order to convince
 
-We change the way information is digested by humanizing our messaging. People are more open to our message when they have a personal connection with us.
+We change the way information is digested by humanizing our messaging. People are more open to our message when they have a personal connection with us. The path to persuasion is always a human one. So, if we want to be more influential, the advice is to seek for methods to be more human.
 
 
