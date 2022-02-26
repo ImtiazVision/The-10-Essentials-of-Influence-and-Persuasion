@@ -36,3 +36,7 @@ People are convinced by advice from people they view as experts. Allowing someon
 
 Making an efficient decision based on the choices, actions, and behaviors of others is a solid method of making an efficient decision.
 
+The most effective social proof is that which is relevant to the individual we are attempting to persuade.
+
+
+
