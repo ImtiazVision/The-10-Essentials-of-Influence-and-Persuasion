@@ -48,6 +48,6 @@ When we are faced with situations where we need to influence and persuade others
 
 ### Humanize in order to convince
 
-We change the way information is digested by humanizing our messaging.
+We change the way information is digested by humanizing our messaging. People are more open to our message when they have a personal connection with us.
 
 
