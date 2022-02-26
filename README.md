@@ -30,5 +30,5 @@ The lesson is obvious for anybody in the business of effective and ethical influ
 
 ### How to Build an Effective Introduction 
 
-People are convinced by advice from people they view as experts. Allowing someone else to introduce us removes the "self" from self-promotion.
+People are convinced by advice from people they view as experts. Allowing someone else to introduce us removes the "self" from self-promotion. As a result, having someone else introduce us is the ideal option.
 
