@@ -21,3 +21,9 @@ The lesson is obvious for anybody in the business of effective and ethical influ
 ### Seek uncommon commonalities
 
 > The path to "yes" is paved with commonalities. In the early stages of a relationship, it is critical to emphasize common interests, beliefs, backgrounds, and preferences.
+
+**Uncommon Commonalities does the followings:**
+  
+  - Assist in establishing quick relationships
+  - Accelerate the development of relationships
+  - Encourage individuals to like one another.
