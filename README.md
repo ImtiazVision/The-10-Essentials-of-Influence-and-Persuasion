@@ -46,5 +46,8 @@ The most effective social proof is that which is relevant to the individual we a
 
 When we are faced with situations where we need to influence and persuade others, and we know that we will need to interact with a number of people before the deal is closed or an agreement is finalized, it makes sense to signal the progress we are making at the start of each new meeting or interaction to ensure that our influence plan stays on track.
 
+### Humanize in order to convince
+
+We change the way information is digested by humanizing our messaging.
 
 
