@@ -20,4 +20,4 @@ The lesson is obvious for anybody in the business of effective and ethical influ
 
 ### Seek uncommon commonalities
 
-> The path to "yes" is paved with commonalities.
+> The path to "yes" is paved with commonalities. In the early stages of a relationship, it is critical to emphasize common interests, beliefs, backgrounds, and preferences.
