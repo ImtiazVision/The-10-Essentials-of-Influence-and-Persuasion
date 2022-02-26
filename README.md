@@ -27,3 +27,8 @@ The lesson is obvious for anybody in the business of effective and ethical influ
   - Assist in establishing quick relationships
   - Accelerate the development of relationships
   - Encourage individuals to like one another.
+
+### How to Build an Effective Introduction 
+
+People are convinced by advice from people they view as experts. Allowing someone else to introduce us removes the "self" from self-promotion.
+
