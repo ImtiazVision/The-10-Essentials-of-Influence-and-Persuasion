@@ -32,3 +32,5 @@ The lesson is obvious for anybody in the business of effective and ethical influ
 
 People are convinced by advice from people they view as experts. Allowing someone else to introduce us removes the "self" from self-promotion. As a result, having someone else introduce us is the ideal option.
 
+Making an efficient decision based on the choices, actions, and behaviors of others is a solid method of making an efficient decision.
+
